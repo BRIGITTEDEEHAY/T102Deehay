@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @T102Deehay
+- 👋 Hi, I’m @Brigitte Deehay
 - 👀 I’m interested in Computer Programing
 - 🌱 I’m currently learning BSIT
 
